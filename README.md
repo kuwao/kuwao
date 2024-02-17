@@ -4,6 +4,6 @@ i like visual novels and girls. if you like them too pop a reccomendation in my 
 
 offtab most of the time, if i dont respond just whisper. i'll get a notification for it and probably talk to you. be warned, however, for i am dry
 
-blue archive enjoyers interact
+UOOOOOOOOOOOOOOOOOHHHHHHHHHHHHHHHHHHHHHHHHHHH!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! 😭😭😭💢💢💢💢💢💢💢💢
 
 ![koharu-shimoe-blue-archive](https://github.com/kuwao/kuwao/assets/150097262/814605cc-4104-4719-8670-4be9ee93c748)
